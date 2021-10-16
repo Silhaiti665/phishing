@@ -1,2 +1,5 @@
-# script a été créé par SIL Société informatique de Léogane pour la sécurité informatique
-et apprendre le hacking éthique
+###WARNING :
+This tool is only for educational purpose. If you use this tool for other purposes except education we will not be responsible in such cases..
+###contact-us by Gmail or Whatsapp:
+ Silhaiti665gmail.com
+ wa.me/+50944407414
